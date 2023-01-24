@@ -1,5 +1,5 @@
 ### Hi there 👋
-#### Tools come and go. having smile and sympathy, being volunteer and creative make the world a better place. I'm a self-study learner who search new methods and love to present them to my friends too.
+#### Tools come and go. having sympathy with smile, being friendly, volunteer and creative make the world a better place. I'm a self-study learner who search new methods and love to present them to my friends too
 
 <!--
 **hamidzare71/hamidzare71** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
