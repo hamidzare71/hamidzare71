@@ -1,5 +1,5 @@
 ### Hi there 👋
-#### I'm a junior web developer, non toxic and drama, but also learning, improve frontend, js, React and so on.
+#### Tools come and go. having smile and sympathy, being volunteer and creative make the world a better place. I'm a self-study learner who search new methods and love to present them to my friends too.
 
 <!--
 **hamidzare71/hamidzare71** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
